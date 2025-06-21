@@ -30,4 +30,4 @@ Apresento o Cartão de Visitas Digital da certificadora digital Life Santos, uma
 
 ---
 
-Feito por Riquelme Guedes"# linkbiolifesantos"  
+Feito por Riquelme Guedes
